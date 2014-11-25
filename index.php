@@ -1,2 +1,2 @@
-Chrsitan Aplolinario
+Christian Apolinario
 Joel Collahuazo
